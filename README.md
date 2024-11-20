@@ -1,0 +1,6 @@
+- 👋 Hi, I’m @laezee
+- 👀 I’m interested in gardening, philosophy, sci-fi, books, diy.
+- 🌱 I’m currently learning linux administration and python
+- 💞️ I’m looking to collaborate on dont know yet ;cc
+- 📫 How to reach me DM me
+- 😄 Pronouns: he/him
